@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lesmark
 - 👀 I’m interested i
-- 🌱 I’m currently learnin
+- 🌱 I’m currently learni
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 
 
